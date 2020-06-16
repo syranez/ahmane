@@ -7,3 +7,8 @@ Welt
 * Jeder ist in der Lage durch die Welten zu reisen und zu verändern, doch nur wenige können es
 * Kinder können es, Azune können es, Ohteith kann es
 * Xaidaen kann es nicht.
+* Es gibt 12 wichtige Personen, die sich treffen.
+* Diese haben unterschiedliche Sternzeichen
+* Sie treffen zusammen und wachsen und machen großes.
+* Großes aus sich selbst.
+* Ohteith führt diese 12 Personen zueinander

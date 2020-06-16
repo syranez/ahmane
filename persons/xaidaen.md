@@ -22,4 +22,5 @@ Offen
 Musik
 -
 
-*The Presets - Ghosts
+* The Presets - Ghosts
+* Crystal Fighters - Xtathic Truth - Xtra Loud Mix

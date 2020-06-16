@@ -9,12 +9,7 @@ Die Schlange
 Xaidaen
 -
 
-* Skorpion (Sternzeichen)
-* wird ermächtigt eine andere Welt zu sehen
-* weiß und fühlt wie der Mensch, in dem er nun ist. Dieser weiß aber nichts von ihm.
-* Xaidaen kann ihn aber beeinflussen
-* skruppeloser Baumagnat
-* Wird Xaidaen wie er oder verändert Xaidaen ihn?
+Wird ermächtig korrigierend einzugreifen. Die Frage ist, schafft er das, oder korrumpiert er?
 
 Azune
 -
@@ -34,6 +29,8 @@ Ohteith
 * unglaublich große Fantasie (deshalb kann er auch als einziger seine Stimmung durch Musik transportieren)
 * weiß über Loonah und die Schlange Bescheid
 * er verbindet
+* er ist ein Träumer, nicht wie die Schlange, sondern eher wie ein Traum im Traum.
+* Er macht die faszinierendsten Sachen.
 
 Loonah
 -

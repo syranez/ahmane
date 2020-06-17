@@ -20,14 +20,7 @@ Hatte sich in der Liebe leider geirrt, aber gibt nicht auf. love interest von Xa
 Ohteith
 -
 
-* seine Stimmung wird durch Musik transportiert
-* durch seine Anwesenheit passieren Dinge
-* Einzelgänger
-* unglaublich große Fantasie (deshalb kann er auch als einziger seine Stimmung durch Musik transportieren)
-* weiß über Loonah und die Schlange Bescheid
-* er verbindet
-* er ist ein Träumer, nicht wie die Schlange, sondern eher wie ein Traum im Traum.
-* Er macht die faszinierendsten Sachen.
+Was wäre, wenn es ein Wesen gäbe, das die Realität ändern kann?
 
 Loonah
 -

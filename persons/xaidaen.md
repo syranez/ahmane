@@ -21,11 +21,3 @@ Story
 
 Offen
 -
-
-Musik
--
-
-* The Presets - Ghosts
-* Crystal Fighters - Xtathic Truth - Xtra Loud Mix
-* Lügt, aber es ist ihm egal: Genetikk - König der Lügner
-* Getroffen, aber es geht weiter (vielleicht Love-Story?): Kid Cudi - Pursuit of Happiness

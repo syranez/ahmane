@@ -20,6 +20,8 @@ Story
 * er ist ein Träumer, nicht wie die Schlange, sondern eher wie ein Traum im Traum.
 * Man könnte sagen, seine Tagträumerei wird wahr
 * Er macht die faszinierendsten Sachen.
+* er dreht durch
+** auf der Erde wird er von zwei Polizisten kontrolliert, überwältigt diese, stiehlt eine Pistole, hüpft auf dem Polizeiwagen rum und stiehlt ihn dann. Er rast mit dem Wagen auf der Autobahn herum, bis er irgendwann von einem Helikopter und anderen Polizeiwagen gestoppt wird. Er schießt mit einer Panzerfaust den Helikopter ab. Er achtet penibel darauf, dass kein Mensch verletzt wird, aber als dann ein Polizist stirbt, geht er zu ihm, heilt die Verletzung und holt den Polizisten zurück zu den Lebenden aber warnt ihn, dass er das nicht noch einmal machen würde und der Polizist daher nicht mehr sich in den Weg stellen sollte. Ich glaube, Ohteith will irgendwo hin. Zu einem der zwölf?
 
 Offen
 -

@@ -4,7 +4,8 @@ Personen
 Die Schlange
 -
 
-* Träumer
+Mächtiges Wesen. Ich glaube, es wirft jeden, den es trifft in die Welten hinein. Keine Ahnung warum.
+Es träumt die Welten.
 
 Xaidaen
 -
@@ -14,11 +15,7 @@ Wird ermächtig korrigierend einzugreifen. Die Frage ist, schafft er das, oder k
 Azune
 -
 
-* ertrug viel Leid
-* kann Land und biologische Wesen erschaffen
-* das ist normal in der Welt, die sie bewohnt
-* mag Kirschen
-* ihre Kinder haben eine größere Kraft als sie
+Hatte sich in der Liebe leider geirrt, aber gibt nicht auf. love interest von Xaidaen
 
 Ohteith
 -

@@ -34,3 +34,5 @@ Musik
 * Lügt, aber es ist ihm egal: Genetikk - König der Lügner
 * Getroffen, aber es geht weiter (vielleicht Love-Story?): Kid Cudi - Pursuit of Happiness
 * Wenn er auf Xaidaen trifft und sieht was für eine Macht er erworben hat, was für ein Monster er geworden ist: https://www.youtube.com/watch?v=iVqHtrAXrVk
+* Überraschender großer Auftritt als Retter: El Michels Affair - Shimmy Shimmy Ya
+* Abgelehnte Liebe oder Anfang einer Liebe: David Rawlings - Cumberland Gap

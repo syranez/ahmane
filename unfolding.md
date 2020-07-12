@@ -83,3 +83,30 @@ Ohteith kommt an einer Schreinerei vorbei, deren geöffnete Garagentür Schreie 
 Ohteith setzte sich auf eine Parkbank und wartete auf seinen Kontakt. Er ist gerne früher da, so hat er  genug Zeit die Umgebung auf sich wirken zu lassen und darin einzutauen.
 
 Eine halbe Stunde später kam sein Kontakt. Eine blonde Frau mittleren Alters, der man das Leben durchaus ansah, aber guten Mutes ist und eine positive Aura ausstrahlt, setzt sich neben ihn. Ihre zwei Krücken legt sie zwischen die beiden. Sie hat nur ein Bein. Sie grinst ihn an.
+
+Schroff aber eher auf liebevoll neckische Art fragt Ohteith rhetorisch "Oh, dieses Mal blond und hübsch?" und führt weiter "Na ja, wem es gefällt." Sie grinst weiterhin ihm zugewandt zu während er weiter ähnliches sagt und wartet ab, bis er kindisch alles gesagt hatte.
+Dann wird er ernst und fragt sie "Aber Dein Bein? Wie lange willst Du noch auf Dein Bein verzichten? Ich meine irgendwann ist doch mal gut?!". Sie grinst noch breiter und antwortet "Mein lieber Ohteith ..."
+" ... das Bein ist nur ein Bein. Zwar habe ich nur ein Bein, aber dafür trage ich da, wo das Bein war, das Zeichen für unseren großartigen Triumph. Mein Bein zu opfern war die einfachste Entscheidung meines Lebens und was ich dadurch alles rettete erfüllt mich mit so viel
+Zufriedenheit und Stolz, dass das Fehlen des Beines mir gar nicht als solches vorkommt sondern eine Auszeichnung und Erinnerung an das ist, wozu ich imstande bin. Würde ich entscheiden, wieder mit zwei Beinen zu laufen, dann würde ich mich verraten.
+Also nein, lieber Ohteith, ich komme gut zurecht mit einem Bein und werde niemals diese Erinnerung an die großartige Person, die ich war und immer noch bin aufgeben."
+Ohteith konnte es nicht vollumfänglich verstehen also zuckte er nur mit den Schultern und sage "Na ja, ist ja auch Deine Entscheidung. Ich stelle es mir nur sehr umständlich vor, mit nur einem Bein durch die Welten zu streifen, aber okay. Wozu dieses Treffen?"
+Sie seufzte kurz, aber erinnerte sich daran, dass er im Vergleich zu ihr noch so jung und unerfahren ist, dass es ist, als ob ein Erwachsener mit einem Kind reden würde. Was in diesem Fall sogar ein kindisches Kind wäre worüber sich kurz kichern musste.
+Aber dann wurde sie ernst, denn genau das ist jetzt das, was sie und die Schlange brauchen: Ein kindliches Gemüt mit unbegrenzter Fantasie und Schlichtheit die Probleme zu lösen, die so mannigfaltig vor ihnen liegen. "Es ist wieder soweit."
+- "Schon? Ich dachte, wir hätten mehr Zeit?"
+"Nein. Die Schlange hat die Zwölf schon ausgeschickt und die anderen wissen sicherlich schon darüber Bescheid und wollen die Vereinigung verhindern."
+- "Also ist es wieder wie damals?"
+"Ja, nur ..."
+- " ... damals warst Du an meiner Stelle und ich einer der Zwölf" ergänzt Ohteith ihren Satz.
+Sie grinste wieder.
+"Ich verstehe."
+- "Deine Aufgabe ist es die Zwölf zu finden, zu beschützen und zusammenzubringen."
+"Was auch sonst!" lachte Ohteith.
+- "Hast Du sonst noch Fragen, Ohteith?"
+"Nur eine: Was hat sie vor?"
+Wieder grinste sie. "Ich kenne sie zwar länger als Du, Ohteith, aber was sie vorhat, weiß selbst ich nie so genau. Lass Dich überraschen von dem, wie es sich fügen wird."
+Mittlerweile hatte es begonnen heftiger zu regnen und so saßen sie halb durchnässt auf der Bank als einzige auf der Straße weit und weit sichtbar. Sie stand auf, gab Ohteith einen Kuss auf seine Stirn, verabschiedete sich und ging in Richtung Park.
+Im Park angekommen bewegte sich sich sorgsam durch eine Blumenwiese aufpassend, dass sie keine der wunderschönen Blumen niedertrampelt und dann war sie verschwunden.
+Ohteith saß noch auf der Bank als plötzlich mit einem brachialem Donner im ersten Stock des ihm gegenüberliegenden Hauses eine Implosion ereignete, die in einem Radius von 2,5 Metern alles vaporisierte und ein leeres kugelförmiges Nichts hinterließ.
+"Das Spiel beginnt", dachte Ohteih, "Sie wissen Bescheid.".
+
+Er stand auf, klopfte sich auf die Schulter und seine Kleidung und er selber wurden schlagartig trocken und so ging er wieder trocken aber immer noch im Regen und in Gedanken versunken die Straße hinab.
